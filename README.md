@@ -6,4 +6,4 @@ I build clean, fast landing pages for small businesses.
 - Arabic-friendly (RTL) layouts
 - Simple, friendly collaboration — I explain things clearly
 
-If you want a quick landing page, DM me on Instagram:https://www.instagram.com/ayanomi_01
+If you want a quick landing page, DM me on ayanomi453@gmail.com
